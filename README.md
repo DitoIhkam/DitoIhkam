@@ -29,7 +29,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **ditoihkam@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Pit2vD0RHJiBNXbz1hR5KqnZ6ziNJo8z/view?usp=sharing](https://drive.google.com/file/d/1Pit2vD0RHJiBNXbz1hR5KqnZ6ziNJo8z/view?usp=sharing)
+- 📄 Know about my experiences [CV_Ihkam_Audito](https://drive.google.com/file/d/1Pit2vD0RHJiBNXbz1hR5KqnZ6ziNJo8z/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
